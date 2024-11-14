@@ -14,7 +14,7 @@ visualization).
 
 Written proposal due date: **Thursday December 5th 2024** (or earlier)
 
-Project due date: **Thursday, December 26th at 11:59 PM**
+Project due date: **Thursday, December 26th 2024** (or earlier)
 
 **Final projects must receive prior approval in the form of a written proposal.**
 
